@@ -29,9 +29,3 @@ There are a few reasons why I've decided to take this course:
 - To satisfy my curiosity and passion for learning.
 - To challenge myself and step out of my comfort zone.
 - To contribute to my long-term personal and professional growth.
-
-I'm enthusiastic about the learning journey ahead and look forward to making the most out of this course.
-
----
-
-*Feel free to customize and expand upon these points according to your personal expectations and goals for the course.*
